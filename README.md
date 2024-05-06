@@ -1,1 +1,1 @@
-# Diana Shi Resume - updated 2023 Fall
+# Diana Shi Resume - updated 2024 Summer
